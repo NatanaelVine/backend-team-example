@@ -1,0 +1,1 @@
+Nael dan Ryan saling menyayangi 1 sama lain
