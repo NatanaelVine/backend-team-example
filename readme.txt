@@ -1,0 +1,1 @@
+erik makan kambing sambil peluk ryan
